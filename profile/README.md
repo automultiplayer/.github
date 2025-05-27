@@ -21,7 +21,7 @@ Stay up to date and connect with the community:
 
 * 🌍 Official Website *(coming soon)*
 * 💬 Discord *(coming soon)*
-* ▶️ [YouTube] (https://www.youtube.com/@automultiplayer)
+* ▶️ [YouTube](https://www.youtube.com/@automultiplayer)
 * 📸 Instagram *(coming soon)*
 
 ---
