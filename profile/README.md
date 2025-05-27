@@ -10,7 +10,7 @@ You know the classic.
 
 Now it's time to meet **the future**.
 
-✨ **Immersive, bold, and tailor-made for true GTA fans.**
+- **Immersive, bold, and tailor-made for true GTA fans.**
 AutoM isn't just a mod — it's the beginning of a new era.
 
 ---
