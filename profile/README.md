@@ -1,4 +1,4 @@
-# 👑 AutoM — A New Era on Your Phone
+# 👑 AutoM - A New Era on Your Phone
 
 Imagine exploring a vibrant, modern, and completely online city — all from your phone.
 
